@@ -1,1 +1,0 @@
-# ihpazarka.github.io
